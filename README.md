@@ -6,3 +6,5 @@ My first respiratory
 2. Maze Runner
 3. Mantis
 4. How To Train Your Dragon*
+
+These are my favorite series/movies its all about highschool bullies and adventures 
